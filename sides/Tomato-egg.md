@@ -2,8 +2,8 @@
 
 ## Ingredients
 
-- Tomatoes
-- Eggs
+- 2 Tomatoes
+- 2 Eggs
 
 
 ## Instructions
