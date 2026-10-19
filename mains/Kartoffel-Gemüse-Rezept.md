@@ -9,7 +9,7 @@
 - 1/2 rote Zwiebeln
 - 1/2 grüne Paprika
 - 1/2 Rotkohl
-- 50 g Spinat
+- 75 g Spinat
 - 3-4 Cherrytomaten
 - 70 g Feta-Käse
 - 100 g geriebener Käse
